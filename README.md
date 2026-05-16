@@ -1,4 +1,4 @@
-### Hi there 👋 Natoli Here
+### Hi there 👋 Aliyi Here
 
 ## I am full-stack Software Developer! 
 
